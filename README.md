@@ -11,7 +11,9 @@
     > 
     > come cammina un gatto per il tetto...”
     > 
-    > 这段诗句中提到的“云朵消散”和“猫走在屋顶上”可以用树叶的细腻纹理来表现自然与生活的瞬息变化【66†source】。
+    > 这段诗句中提到的“云朵消散”和“猫走在屋顶上”可以用树叶的细腻纹理来表现自然与生活的瞬息变化​(
+    > 
+    > [Le Muse Inquiete](https://lemuseinquiete.it/il-canzoniere-di-patrizia-cavalli/)
     > 
 
 ### 2. **花瓣与爱情的脆弱性**
@@ -31,7 +33,9 @@
     > 
     > forse è l’unico perfetto.”
     > 
-    > 这段诗句反映了爱情的虚伪与现实，可以用花瓣的柔软与易碎表现出爱情的脆弱和转瞬即逝【68†source】。
+    > 这段诗句反映了爱情的虚伪与现实，可以用花瓣的柔软与易碎表现出爱情的脆弱和转瞬即逝​(
+    > 
+    > [Poesia](https://www.luigiasorrentino.it/2018/07/12/patrizia-cavalli-cinque-poesie/)
     > 
 
 ### 3. **石头与命运的沉重**
@@ -49,7 +53,9 @@
     > 
     > senza girarmi mai per liberarlo...”
     > 
-    > 这段诗句中表现出对命运的挣扎与困顿，石头的粗糙感和沉重感可以很好地传达这种情感【68†source】。
+    > 这段诗句中表现出对命运的挣扎与困顿，石头的粗糙感和沉重感可以很好地传达这种情感​(
+    > 
+    > [Poesia](https://www.luigiasorrentino.it/2018/07/12/patrizia-cavalli-cinque-poesie/)
     > 
 
 ### 4. **树皮与生命的坚韧**
@@ -63,7 +69,9 @@
     > “Adesso vorrei improvvisamente la prigione.”
     > 
     > 
-    > 这段诗句表达了对自由的渴望与束缚的矛盾情感，树皮的坚韧与裂痕可以象征人们在束缚中依然保持的坚强【66†source】。
+    > 这段诗句表达了对自由的渴望与束缚的矛盾情感，树皮的坚韧与裂痕可以象征人们在束缚中依然保持的坚强​(
+    > 
+    > [Le Muse Inquiete](https://lemuseinquiete.it/il-canzoniere-di-patrizia-cavalli/)
     > 
 
 ### 1. **旧表（Old Clock）与时间的流逝**
@@ -77,7 +85,9 @@
     > “Adesso che il tempo sembra tutto mio...”
     > 
     > 
-    > 这句诗反映了时间的流逝和个人感知的变化。旧表的磨损和指针的痕迹可以很好地表现出这种时间不可挽回的主题【66†source】。
+    > 这句诗反映了时间的流逝和个人感知的变化。旧表的磨损和指针的痕迹可以很好地表现出这种时间不可挽回的主题​(
+    > 
+    > [Le Muse Inquiete](https://lemuseinquiete.it/il-canzoniere-di-patrizia-cavalli/)
     > 
 
 ### 2. **墙面（Wall Surface）与记忆的斑驳**
@@ -95,7 +105,9 @@
     > 
     > raccogliere...”
     > 
-    > 这段诗句中提到的“灰尘”与“不可收集”可以用旧墙面斑驳的纹理表现，展示时间和记忆的不可逆性【66†source】。
+    > 这段诗句中提到的“灰尘”与“不可收集”可以用旧墙面斑驳的纹理表现，展示时间和记忆的不可逆性​(
+    > 
+    > [Le Muse Inquiete](https://lemuseinquiete.it/il-canzoniere-di-patrizia-cavalli/)
     > 
 
 ### 3. **贝壳（Seashell）与自然的循环**
@@ -111,7 +123,9 @@
     > 
     > insegue l’azzurro sempre uguale...”
     > 
-    > 这段诗句表达了自然的变化与永恒，可以用贝壳的螺旋纹理表现出自然界的循环与永恒性【66†source】。
+    > 这段诗句表达了自然的变化与永恒，可以用贝壳的螺旋纹理表现出自然界的循环与永恒性​(
+    > 
+    > [Le Muse Inquiete](https://lemuseinquiete.it/il-canzoniere-di-patrizia-cavalli/)
     > 
 
 ### 4. **烟灰（Ash）与生命的虚无**
@@ -127,7 +141,9 @@
     > 
     > anche quando ti sembra di non amarlo più.”
     > 
-    > 这段诗句反映了情感的消逝和爱的虚无，烟灰的轻盈和漂浮感可以很好地传达出这种虚无感【68†source】。
+    > 这段诗句反映了情感的消逝和爱的虚无，烟灰的轻盈和漂浮感可以很好地传达出这种虚无感​(
+    > 
+    > [Poesia](https://www.luigiasorrentino.it/2018/07/12/patrizia-cavalli-cinque-poesie/)
     > 
 
 ### 5. **肉（Meat）与生命的本质**
@@ -147,7 +163,9 @@
     > 
     > Il resto è per i pazzi.”
     > 
-    > 这段诗句反映了身体与情感的真实与矛盾，肉的质感和血色可以很好地表现生命的本质与脆弱【67†source】。
+    > 这段诗句反映了身体与情感的真实与矛盾，肉的质感和血色可以很好地表现生命的本质与脆弱​(
+    > 
+    > [DonnaD](https://www.donnad.it/patrizia-cavalli-poesie)
     > 
 
 ### 1. **衣服褶皱与日常生活的痕迹**
@@ -165,7 +183,9 @@
     > 
     > sovrana la bellezza di una parete...”
     > 
-    > 这段诗句中提到的“静止中的美”与衣服的褶皱不期而遇的美感形成共鸣，衣服的褶皱象征着生活中的静态瞬间【68†source】。
+    > 这段诗句中提到的“静止中的美”与衣服的褶皱不期而遇的美感形成共鸣，衣服的褶皱象征着生活中的静态瞬间​(
+    > 
+    > [Poesia](https://www.luigiasorrentino.it/2018/07/12/patrizia-cavalli-cinque-poesie/)
     > 
 
 ### 2. **衣物与回忆的承载**
@@ -183,7 +203,9 @@
     > 
     > ma sicura proprietà del mio passato...”
     > 
-    > 这段诗句反映了命运和过去的纠缠，旧衣物的褶皱可以很好地表现这种对往事的反思和对命运的无奈【68†source】。
+    > 这段诗句反映了命运和过去的纠缠，旧衣物的褶皱可以很好地表现这种对往事的反思和对命运的无奈​(
+    > 
+    > [Poesia](https://www.luigiasorrentino.it/2018/07/12/patrizia-cavalli-cinque-poesie/)
     > 
 
 ### 3. **褶皱与情感的纠缠**
@@ -201,7 +223,9 @@
     > 
     > mai lasciati soli in leggerezza...”
     > 
-    > 这段诗句中提到的“永远在自己陪伴下”，可以用交织的褶皱表现情感的交错和孤独感【67†source】。
+    > 这段诗句中提到的“永远在自己陪伴下”，可以用交织的褶皱表现情感的交错和孤独感​(
+    > 
+    > [DonnaD](https://www.donnad.it/patrizia-cavalli-poesie)
     > 
 
 ### 4. **褶皱与心灵的困惑**
@@ -217,7 +241,9 @@
     > 
     > e ti togliessi gli occhiali...”
     > 
-    > 这段诗句中表现出对情感和生活的疑问与期待，杂乱的褶皱象征着内心的困惑和不安【67†source】。
+    > 这段诗句中表现出对情感和生活的疑问与期待，杂乱的褶皱象征着内心的困惑和不安​(
+    > 
+    > [DonnaD](https://www.donnad.it/patrizia-cavalli-poesie)
     > 
 
 ### 5. **褶皱与无奈的宿命感**
@@ -235,5 +261,7 @@
     > 
     > alla felice colpa di esser quel che sono...”
     > 
-    > 这段诗句表达了对自己宿命感的挣扎与无奈，深深的褶皱可以很好地传达出这种难以摆脱的命运感【67†source】。
+    > 这段诗句表达了对自己宿命感的挣扎与无奈，深深的褶皱可以很好地传达出这种难以摆脱的命运感​(
+    > 
+    > [DonnaD](https://www.donnad.it/patrizia-cavalli-poesie)
     >
